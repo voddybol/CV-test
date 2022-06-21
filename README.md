@@ -1,1 +1,1 @@
-https://voddy1337.github.io/rsschool-cv/cv
+https://voddybol.github.io/CV-test/cv
